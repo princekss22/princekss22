@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @princekss22
+- 👀 I’m interested in building networks
+- 🌱 I’m currently learning civil engineering from IIT KANPUR
